@@ -259,7 +259,7 @@ SECCIÓN 8–7 Teorema de transferencia de potencia máxima
 
 4. VIDEO
 
-
+https://youtu.be/SC84-NtAGgk
 
 5.	CONCLUSIONES
 
